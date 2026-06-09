@@ -1,4 +1,4 @@
-# 
+# New Shotcut presets for Mac OS | Premium Shotcut presets for PC Windows. Featuring keyframe-animation and recording — optimized for maximum performance on every platform.
 
 
 
